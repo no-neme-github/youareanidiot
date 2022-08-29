@@ -1,2 +1,2 @@
-# youareanidiot
+# youareanidiot(virus)
 https://youareanidiot.cc/
