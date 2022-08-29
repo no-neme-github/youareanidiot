@@ -1,0 +1,2 @@
+# youareanidiot
+https://youareanidiot.cc/
